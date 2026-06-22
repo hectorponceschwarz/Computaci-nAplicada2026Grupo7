@@ -1,0 +1,1 @@
+# Computaci-nAplicada2026Grupo7
